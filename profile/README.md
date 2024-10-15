@@ -1,4 +1,4 @@
-# Accelerate Evolution, ENhance Development - Cathalyst 🚀⚗️🌱🔥🌐
+# Accelerate Evolution, Enhance Development - Cathalyst 🚀⚗️🌱
 
 <!--
 
